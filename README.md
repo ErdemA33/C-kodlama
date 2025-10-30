@@ -1,2 +1,1 @@
-# C-kodlama
-c c c c c kodluyorum
+ÖBHUTMTAL OLİMPİYAT
